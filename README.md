@@ -1,1 +1,1 @@
-https://karouaraujo.github.io/karou/
+https://karouaraujo.github.com/karou/
